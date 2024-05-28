@@ -1,1 +1,1 @@
-# artístico
+# Ping-pong
