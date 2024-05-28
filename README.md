@@ -1,1 +1,1 @@
-# art-stico
+# artístico
